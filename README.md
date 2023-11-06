@@ -1,2 +1,1 @@
-👋
-I am beginner 
+👋 Sound and Visions
